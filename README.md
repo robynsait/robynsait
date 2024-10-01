@@ -6,3 +6,4 @@ I'm **Robyn**, a student at SAIT in the Interactive Design Diploma program.
 - I love animals, especially dogs.
 - I'm a big reader, and am always working through a book on my Kobo.
 - One of my favorite hobbies is playing video games.
+- I am a part of a weekly Dungeons and Dragons campaign with a group of friends
